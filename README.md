@@ -1,1 +1,2 @@
-![2025 cv](https://github.com/user-attachments/assets/83a7c407-5ddd-44bb-b7c5-a6b6244a30dc)
+
+![CV 2025](https://github.com/user-attachments/assets/af66eccc-3292-41f2-a138-45268ad9e39d)
